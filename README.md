@@ -5,4 +5,4 @@ Carolina Restrepo Trujillo - CC 1152226862 - Bioingeniería
 🎥 [Ver video de avance del proyecto entrega 2 en YouTube](https://www.youtube.com/watch?v=TlEuhq2Szz0)
 
 ENTREGA FINAL
-🎥 [Ver video de avance del proyecto entrega FINAL en YouTube](https://www.youtube.com/watch?v=FuGx5WNC4J8)
+🎥 [Ver video de avance del proyecto entrega FINAL en YouTube](https://www.youtube.com/watch?v=6ZMsEX2ugdM)
